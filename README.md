@@ -1,1 +1,1 @@
-# wynewlife..github.io
+# wynewlife.github.io
